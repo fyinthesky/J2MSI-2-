@@ -3,7 +3,7 @@ change the old version to new appear, optimize,easy to use, form a simple msi in
 
 you can ask for exe or source  my e-mail is  fyinthesky@sina.com  
 
-or leave you mail .
+or leave your mail .
 
 follow is the screenshot:
 
